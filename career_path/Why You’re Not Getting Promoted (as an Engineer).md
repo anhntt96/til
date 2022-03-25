@@ -1,0 +1,1 @@
+https://medium.com/@_michaellin/why-youre-not-getting-promoted-as-an-engineer-8d213f5ea0a6
