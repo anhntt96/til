@@ -1,0 +1,1 @@
+https://namucode.medium.com/disrespectful-code-challenges-for-senior-software-engineers-509c6a99036
