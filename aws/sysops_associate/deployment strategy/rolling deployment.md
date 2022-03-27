@@ -1,0 +1,1 @@
+https://docs.aws.amazon.com/whitepapers/latest/overview-deployment-options/rolling-deployments.html
