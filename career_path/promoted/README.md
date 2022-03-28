@@ -1,0 +1,2 @@
+1. https://medium.com/@_michaellin/why-youre-not-getting-promoted-as-an-engineer-8d213f5ea0a6
+2. https://www.linkedin.com/posts/scarletink_why-wont-someone-give-me-a-promotion-activity-6913723076283179008-IYco/?utm_source=linkedin_share&utm_medium=ios_app
